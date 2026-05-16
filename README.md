@@ -1,5 +1,5 @@
 # MAGA-and-Fox-News
-##Mom Slams 82-Year-Old Congresswoman's 'Hostile' Response to Her Son's Letter, Which Told 4th Grader to Learn What 'Propaganda' Means
+## Mom Slams 82-Year-Old Congresswoman's 'Hostile' Response to Her Son's Letter, Which Told 4th Grader to Learn What 'Propaganda' Means
 
 A North Carolina mom shared a “horrific letter” her 10-year-old received from Republican Rep. Virginia Foxx, who suggested the boy's teachers were “indoctrinating” him
 
